@@ -1,2 +1,1 @@
-# Shreyas-Nagabhushan.github.io
-Hello There
+# Shreyas Nagabhushan
